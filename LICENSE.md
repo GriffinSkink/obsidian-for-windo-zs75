@@ -1,4 +1,4 @@
-# 
+# Enhance Obsidian for Windows with professional Obsidian for Windows Tool | offline-access + rich-text-editing, the #1 tool. Includes offline-access and rich-text-editing for a
 
 
 
